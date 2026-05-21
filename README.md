@@ -19,4 +19,4 @@
 ☾ 𝐘𝐨𝐤𝐮 / 𝐂𝐚𝐭𝐢𝐞 .
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
-ok,,,,, this is the part where i have to write......💔 ill finish ts later ok
+ok,,,,, this is the part where i have to write......💔 ill finish ts later ok...BUUUTTTT if youre on this list just know that ily ok? ok. <3
